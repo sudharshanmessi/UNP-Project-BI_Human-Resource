@@ -17,4 +17,4 @@ PBIX file Link:https://drive.google.com/file/d/1wSUxJHR82PPS8BvoqHN_3rL8OsXZB2P6
 
 PPT Link:https://drive.google.com/file/d/1AzoyJ06mnCaLQ0d0PdrZYgonV2Ab4iaP/view?usp=sharing
 
-PDF Link:https://drive.google.com/file/d/1cNeJvxrRLYvjk_yuOgqCh6sz4Pb0Cuzz/view?usp=sharing
+PDF Link:https://drive.google.com/file/d/1aJAoRA8VixK-p7N9lpDODHkTuN0m-C6i/view?usp=sharing
